@@ -1,1 +1,1 @@
-imges related
+wallpapers related
